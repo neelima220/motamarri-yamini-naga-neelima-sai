@@ -1,1 +1,1 @@
-# motamarri-yamini-naga-neelima-sai
+# motamarri-neelima sai
